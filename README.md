@@ -1,1 +1,1 @@
-[thep.company](thep.comapany)
+[thep.company](https://thep.company)
